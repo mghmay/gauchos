@@ -1,0 +1,1 @@
+Los Gauchos Psicodélicos del Espacio are a virtual psychedelic cumbia band from outer space, when they're not stopping cattle rustlers on Alpha Centauri 5, or saving the princess from the evil Don Malvado, they're sitting back and making relaxed rhythms inspired by the psychedelic sounds coming out of the the 70s Ecuadorian Amazon. 
